@@ -6,4 +6,4 @@ Meu nome é Fernanda Durki
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos
 
-![](https://tenor.com/fZMex15q44p.gif)
+![](https://media1.tenor.com/m/s5uUXa5emK4AAAAd/one-piece-one-piece-luffy.gif)
